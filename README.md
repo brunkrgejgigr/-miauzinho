@@ -4,7 +4,7 @@
 
  _musicas que gosto!
 _ainda bem
-_nnova demais pra mim
+_nova demais pra mim
 _bonsai
 _fria rita como me irrita
  
