@@ -1,13 +1,17 @@
-# _ MúSica
-##_[depois](https://youtu.be/BM-mnklMWCQ?si=C4wYmoFPCHlwpQGp)
+# _ Música
+##_*MPB e Mais!* 
+[depois](https://youtu.be/BM-mnklMWCQ?si=C4wYmoFPCHlwpQGp)
  ![GIF](https://media1.tenor.com/m/g4cylyUIYi0AAAAd/gay-d-gay.gif)
 
  _musicas que gosto!
-_ainda bem
-_nova demais pra mim
-_bonsai
-_fria rita como me irrita
  
-
+-ainda bem{de Marisa Monte]
+-nova demais pra mim
+-bonsai
+-fria rita como me irrita
+-limón y sal
+-Mi corazón
+-Ojos de Girasol
+-Eduardo e Mónica
 
  
